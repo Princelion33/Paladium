@@ -49,3 +49,5 @@ Discover the power of Paladium with this expansive Minecraft mod! Immerse yourse
 *   Endium Helmet, Chestplate, Leggings, Boots
 
 Dive into the Paladium Expansion Mod and elevate your Minecraft adventure to new heights!
+
+[Notre site web](https://payhip.com/losvegas)
