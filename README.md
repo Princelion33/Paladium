@@ -1,4 +1,5 @@
-                                             **WIKI**
+**WIKI AND Information, Documentation, and Help**
+
 **Paladium Expansion Mod**
 
 Discover the power of Paladium with this expansive Minecraft mod! Immerse yourself in a world enriched with new ores, blocks, and items that redefine your crafting and combat experience.
