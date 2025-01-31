@@ -1,4 +1,4 @@
-**WIKI AND Information, Documentation, and Help**
+**WIKI and Information, Documentation, and Help**
 
 **Paladium Expansion Mod**
 
